@@ -67,4 +67,6 @@ In the world of darknet markets, real user reviews matter. **We The North Market
 [![img](/static/load.webp)](http://hh2paw7ouhfjozylujs3qp4rql7xc76ce63ffzvtlpicjqgeiqxp4oad.onion)
 
 
-Update:  Thursday 18 September 2025 Good news! The link is alive and well.
+
+
+Update:  Wednesday 01 October 2025
